@@ -11,7 +11,7 @@ That's why the life way will be an opportunity for me, for you, and for all of u
 By simply registering your account in the app, you can donate whatever you want: food, clothes, money, and even books.The organizations will take it from you and guarantee its arrival to those in need. The same goes for the job opportunities section for those in need
 The app will also have a volunteering section to give you the opportunity to work with charitable organizations to help
 The most important thing to ensure the honesty of the app is the chat between the donor and the organizations specifically between them only to know the details of the donations
-With our app, we will put an end to the problem of poverty and reduce it. No one deserves to suffer and die without having the opportunity to dream..
+With our app, we will put an end to the problem of poverty and reduce it. No one deserves to suffer and die without having the opportunity to dream.
 
 ## Screenshots
 
